@@ -1,6 +1,6 @@
 # 龙猫云机场官网地址
 
-最新地址：[lmspeedapp.com](https://lmspeed.co/register?aff=QURLrgdq)
+最新地址：[lmspeedapp.com](https://inv02.lmaff01.cc/register?aff=QURLrgdq)
 
 ## 龙猫云机场介绍
 
